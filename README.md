@@ -1,0 +1,1 @@
+ссылка на реп https://github.com/erinmikhail/slozhno-sosredotochitsya-ad Увидеть пожалуйста, что REaDME.md - заглавные буквы. PLEASE
